@@ -3,5 +3,5 @@
 
 ## 📬 Contact
 
-Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/harshitha-challam-61967a273/) or reach out if you have questions about the project.
+Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/harshitha-challam-61967a273/) 
 
